@@ -1,6 +1,4 @@
-# mi-primer-readme
-Esto es una prueba
-El farolito
+#El-farolito-los-piojos
 Uoh-bam-ba, uoh-bam-ba
 Uoh-bam-ba, uoh-bam-ba-ba (uh-uh, uh-uh-uh)
 Uoh-bam-ba, uoh-bam-ba
