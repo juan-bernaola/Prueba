@@ -1,40 +1,29 @@
-# Domador de sombras
-Cuido preservar esas personas
-que me enderezan la espalda,
-me expanden el horizonte y esperanza en las mañanas.
-Cuando me pesan los pasos,
-cuando nada vale nada,
-que vire la energía para el lado del
+# VIAJO CON EL SOL LETRA
+Mi amor aun hay mas
+Necesito que apagues la mente
+Y que aprendas conmigo a cantar.
 
-Buen día sol, buen día vida maga,
-buen día el equilibrio, buen día la confianza,
-buen día el laberinto, buen día como un rezo,
-como un pacto de esperanza,
-plegaria del eterno Domador de Sombras.
+Viajo con el sol y amanezco tranquilo
+Alimento la esperanza de un mundo mejor
+Viajo con el sol y amanezco tranquilo
+Alimento la esperanza de un mundo mejor
 
-Será mejor un trago de sol,
-juntarnos a hablar sin frenos,
-para arrancar con viento a favor
-y hacerle el amor a los sueños.
+Y trato de siempre tirar la mejor a quien me cruza
+Y trato de siempre sonreír al despertar
+Se que muchas veces se puede poner medio áspera la cosa
+Pero el pensamiento positivo puede mas
 
-Pido ser arteria de la luz, un camino hacia la fé,
-encontrarme sin receta con la fuente del querer.
-Animarme a ser amor sin ahogarme en el después
-y que vire la energía para el lado del
+Los prejuicios son cojines que tapan la luz de primavera
+Las tranqueras hay que abrirlas pa' que hable el corazón
+Pongamos la sonrisa de moneda corriente
+Si miramos para el mismo lado podemos salvarnos
+De la autodestrucción
+De la autodestrucción
 
-Buen día sol, buen día vida maga,
-buen día el equilibrio, buen día la confianza,
-buen día el laberinto, buen día como un rezo,
-como un pacto de esperanza,
-plegaria del eterno Domador de Sombras.
+Viajo con el sol y amanezco tranquilo
+Alimento la esperanza de un mundo mejor
+Viajo con el sol y amanezco tranquilo.
+Alimento la esperanza de un mundo mejor.
 
-Será mejor un trago de sol,
-juntarnos a hablar sin frenos,
-para arrancar con viento a favor
-y hacerle el amor a los sueños.
-
-Será mejor un trago de sol,
-juntarnos a hablar sin frenos,
-para arrancar con viento a favor
-y hacerle el amor a los sueños.
+Dios es un tipo bueno pero es alto cagon.
 
